@@ -61,7 +61,8 @@ Why are obsession important to me?
 
 - Gives me something to think about and learn about.
 - Occupies me.
-- Gives me to talk about.
+- Gives me somethign to talk about.
+- Gives my brain to focus on.
 - 
 </details>
 <details>
