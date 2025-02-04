@@ -31,6 +31,17 @@ To me my headphones are critical to my wellbeing and pracipation in society and 
 </details>
 <details>
 <summary>The sqinting</summary>
+<br>
+
+## The Squinting 
+
+I find bright sunlight to be glaring and often startling as well overwhelming.In bright sunlight I find that I Often either look at the ground or have difficulty having my eyes properly open. To the point that it looks like I am constantly squinting.
+
+### Effect 
+- Loss of concentration
+- Highten discomfort
+- Loss of focusible sight
+- 
 </details>
 <details>
 <summary>The skulls in my mouth</summary>
