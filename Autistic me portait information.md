@@ -40,4 +40,9 @@ To me my headphones are critical to my wellbeing and pracipation in society and 
 </details>
 <details>
 <summary>The color choice</summary>
+<br>
+
+## The colour choice 
+
+I find it hard to relate to the idea as autistic person that I meant to have black and white thinking. I feel that my thinking has some nuace to it and have been trained through Intentional peer support to hold space for multiple worldviews and sometime conflict worldviews. That my thinking has some grey area and complexity. 
 </details>
