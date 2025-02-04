@@ -58,5 +58,5 @@ I find bright sunlight to be glaring and often startling as well overwhelming.In
 
 ## The colour choice 
 
-I find it hard to relate to the idea as autistic person that I meant to have black and white thinking. I feel that my thinking has some nuace to it and have been trained through Intentional peer support to hold space for multiple worldviews and sometime conflict worldviews. That my thinking has some grey area and complexity. 
+I find it hard to relate to the idea that as autistic person that I am meant to have black and white thinking. I feel that my thinking has some nuace to it and have been trained through Intentional peer support to hold space for multiple worldviews and sometime conflict worldviews. That my thinking has some grey area and complexity. 
 </details>
