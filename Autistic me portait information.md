@@ -3,6 +3,9 @@
 ## Matrails 
 Done gray thick paper using grey chalk pastel, Cretacolour Megacolour and Faber-Castel Polychromos.
 
+[instagram link to picture](https://www.instagram.com/p/C5rIjv_yKQo/)
+
+## Interesting and Important Details
 <details>
 <Summary>The headphones</Summary>
 <br>
