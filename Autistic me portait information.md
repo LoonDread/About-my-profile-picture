@@ -74,10 +74,12 @@ Why I need Chewerly?
 
 </details>
 <details>
-<summary>The love haert mark</summary>
+<summary>The love heart mark</summary>
 <br> 
 
 ## The love heart mark ♥️ 
+
+The signficance of the love heart marks is that I have big smooth freckle under the corner of my eye kind of similar to Harley Quinn tattooed heart. She is my favourite comic anti-Hero and like her I have study pyschology as well as spent time in an asylum. I feel like we are kindred spirits. 
 
 </details>
 <details>
