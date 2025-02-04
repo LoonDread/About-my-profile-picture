@@ -54,6 +54,13 @@ I find bright sunlight to be glaring and often startling as well overwhelming.In
 ## The skull in my Mouth
 
 The skull represent two things my obsession with the band The misfits and my need for Chewerly (chewable jewelry). 
+
+Why are obsession important to me? 
+
+- Gives me something to think about and learn about.
+- Occupies me.
+- Gives me to talk about.
+- 
 </details>
 <details>
 <summary>The love haert mark</summary>
