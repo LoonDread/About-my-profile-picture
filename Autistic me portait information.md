@@ -28,8 +28,16 @@ To me my headphones are critical to my wellbeing and pracipation in society and 
 - Helps me self regulate.
 - keep socail battery fuller for longer
 
-  
-
-
-
+</details>
+<details>
+<summary>The sqinting</summary>
+</details>
+<details>
+<summary>The skulls in my mouth</summary>
+</details>
+<details>
+<summary>The love haert mark</summary>
+</details>
+<details>
+<summary>The color choice</summary>
 </details>
