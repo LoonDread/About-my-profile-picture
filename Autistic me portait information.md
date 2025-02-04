@@ -1,7 +1,7 @@
 # The details of Autistic me protrait.
 
 <details>
-<Summarry>The headphones</Summarry>
+<Summary>The headphones</Summary>
 <br>
   
 ## The head phones 
