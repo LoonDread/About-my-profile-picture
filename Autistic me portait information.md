@@ -22,7 +22,7 @@ My head phones are an important part of my daily attire to help me manage sensor
 
 To me my headphones are critical to my wellbeing and pracipation in society and I find having them on me to be truely benifical. 
 
-### The Reasons 
+### The Benifit
 - Keeps me calm even though I listen to a lot metal and punk.
 - blockes out unpleasant and overwhelming sudden sounds.
 - Helps me self regulate.
@@ -41,7 +41,10 @@ I find bright sunlight to be glaring and often startling as well overwhelming.In
 - Loss of concentration
 - Highten discomfort
 - Loss of focusible sight
-- 
+- disorentaion
+- Highten stress
+- Feeling tireness
+
 </details>
 <details>
 <summary>The skulls in my mouth</summary>
