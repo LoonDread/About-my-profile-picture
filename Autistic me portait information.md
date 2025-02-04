@@ -50,6 +50,10 @@ I find bright sunlight to be glaring and often startling as well overwhelming.In
 </details>
 <details>
 <summary>The skulls in my mouth</summary>
+
+## The skull in my Mouth
+
+The skull represent two things my obsession with the band The misfits and my need for Chewerly (chewable jewelry). 
 </details>
 <details>
 <summary>The love haert mark</summary>
