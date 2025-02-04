@@ -5,6 +5,8 @@ Done gray thick paper using grey chalk pastel, Cretacolour Megacolour and Faber-
 
 [instagram link to picture](https://www.instagram.com/p/C5rIjv_yKQo/)
 
+![Autistic me](https://github.com/LoonDread/About-my-profile-picture/blob/main/even%20smaller%20Autistic%20me.JPG)
+
 ## Interesting and Important Details
 <details>
 <Summary>The headphones</Summary>
