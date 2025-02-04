@@ -63,7 +63,15 @@ Why are obsession important to me?
 - Occupies me.
 - Gives me somethign to talk about.
 - Gives my brain to focus on.
-- 
+
+Why I need Chewerly?
+
+- Dearms a meltdown on number of occassions.
+- relaxs me.
+- distracts me.
+- a form of fidgeting
+- stress relaease.
+
 </details>
 <details>
 <summary>The love haert mark</summary>
