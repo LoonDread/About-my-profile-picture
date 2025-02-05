@@ -91,3 +91,5 @@ The signficance of the love heart marks is that I have big smooth freckle under 
 I find it hard to relate to the idea that as autistic person that I am meant to have black and white thinking. I feel that my thinking has some nuace to it and have been trained through Intentional peer support to hold space for multiple worldviews and sometime conflict worldviews. That my thinking has some grey area and complexity. 
 
 </details>
+
+## How the peice Devoeloped 
