@@ -93,3 +93,9 @@ I find it hard to relate to the idea that as autistic person that I am meant to 
 </details>
 
 ## How the peice Devoeloped 
+
+- **Stage 1:** The photo for "Autistic me" portrait was take while waiting for a bus after an close public meltdown. That day I realised how effective a chewelry is at claming me down. Putting the skull chewie rapidly calmed me down and disarmed a meltdown.
+  
+![Autistic_me_photo](https://github.com/LoonDread/About-my-profile-picture/blob/main/Autistic_me_Photo_resized.jpg)
+
+- **Stage 2:** Being inspired by 
