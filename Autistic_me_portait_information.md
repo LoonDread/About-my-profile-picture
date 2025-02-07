@@ -104,5 +104,7 @@ I find it hard to relate to the idea that as autistic person that I am meant to 
 
 - **Stage 3:** I Realized the lead pencil drawing had potential and room for significant improvement. So I decided to the portrait on better quality gray paper and better coloured pencils. Doing so it capatured the beauty of my struggles with autism but not all.
   
-- **Stage 4:** Submitting series art peices to an art exhibition that includes autistic me portrait. 
+- **Stage 4:** Submitting series art peices to an art exhibition that includes autistic me portrait. This allowed bring even further depth of understand into the portrait AUtistic me and it fitted into a theme of big emotion which was represented in the other self portriats. Consider one of the reason I feel big emotion and get so disregulated is my autistic nature. The Other Self portriats capture other moment in time where big emotion were felt. Some good, some bad, and other dam right awful. Yet I survive and found ways to cop, even if they turn out to burden me later life. That what therapy is for to unfuck yourself.
+
+![THriving_madly_exhibit_2024](https://github.com/LoonDread/About-my-profile-picture/blob/main/Thriving_madly_exhibit_2024.jpg)
 
