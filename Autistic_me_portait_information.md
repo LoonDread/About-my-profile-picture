@@ -98,7 +98,9 @@ I find it hard to relate to the idea that as autistic person that I am meant to 
   
 ![Autistic_me_photo](https://github.com/LoonDread/About-my-profile-picture/blob/main/Autistic_me_Photo_resized.jpg)
 
-- **Stage 2:** Being inspired by what the spontaneous portrait photo which lead to a lead pencil drawing in my sketch book. To me my sketch is place for experimentation. Allowing me not feel so precious of what I create in the book. In turn enabling me to be freer with my creativity. 
+- **Stage 2:** Being inspired by what the spontaneous portrait photo which lead to a lead pencil drawing in my sketch book. To me my sketch is place for experimentation. Allowing me not feel so precious of what I create in the book. In turn enabling me to be freer with my creativity.
+
+![AutustiC_me_lead](https://github.com/LoonDread/About-my-profile-picture/blob/main/Autistic_me_resized.jpg)
 
 - **Stage 3:** I Realized the lead pencil drawing had potential and room for significant improvement. So I decided to the portrait on better quality gray paper and better coloured pencils. Doing so it capatured the beauty of my struggles with autism but not all.
   
