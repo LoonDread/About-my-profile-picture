@@ -100,6 +100,7 @@ I find it hard to relate to the idea that as autistic person that I am meant to 
 
 - **Stage 2:** Being inspired by what the spontaneous portrait photo which lead to a lead pencil drawing in my sketch book. To me my sketch is place for experimentation. Allowing me not feel so precious of what I create in the book. In turn enabling me to be freer with my creativity. 
 
-- **Stage 3:** Realizing the potential of the lead pencil drawing. 
-
+- **Stage 3:** I Realized the lead pencil drawing had potential and room for significant improvement. So I decided to the portrait on better quality gray paper and better coloured pencils. Doing so it capatured the beauty of my struggles with autism but not all.
+  
 - **Stage 4:** Submitting series art peices to an art exhibition that includes autistic me portrait. 
+
